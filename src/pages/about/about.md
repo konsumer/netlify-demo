@@ -14,3 +14,5 @@ A Lannister always pays his debts. King in the North. As High as Honor. Dunc the
 When you play the game of thrones, you win or you die. It's ten thousand miles between Kings landing and the wall. The battle of the redgrass field. When you play the game of thrones, you win or you die. The battle of the redgrass field. May the Father judge him justly.
 
 The battle of the redgrass field. A good act does not wash out the bad, nor a bad act the good. Each should have its own reward. Unbowed, Unbent, Unbroken. The tourney of Ashford Meadows. The battle of the redgrass field. I would like a trial by combat. More pigeon pie, please. The Dothraki do things in their own time, for their own reasons. When you play the game of thrones, you win or you die. The wolf and the lion. The War of the 5 kings. King in the North. It is rare to meet a Lannister who shares my enthusiasm for dead Lannisters. Unbowed, Unbent, Unbroken. The battle of the redgrass field.
+
+Neat!
